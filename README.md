@@ -1,5 +1,6 @@
 # 💫 About Me:
 🔭 I’m currently helping launch companies faster and scale smarter
+
 📫 Reach me on [my website](https://mrkannah.com/)
 
 
